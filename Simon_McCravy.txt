@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 
 
 My favorite quote
@@ -15,3 +16,8 @@ Princess Bride - memorable quotes and intersting characters. :wink:
 
 My favorite game:
 Civilization 5 I love turn based stretegy and this is the best of the bunch. :smile:
+=======
+I'm Simon. My major is software development. I enjoy watching animated film and playing video games.
+I graduate in 2016. Best netflix series - Top Gear or Futurama -
+I like to play a lot of ifferent types of games Strategy like Civilization to FPS like Titanfall.
+>>>>>>> 49460c40c0ca4c4f59318b5b8facb185c9e9b72c
