@@ -1,29 +1,21 @@
 #Kenny Cauthen
 
 #Quote
-![LaoTzu](http://www.verybestquotes.com/wp-content/uploads/2013/01/lao-Tzu-quotes-Living-in-the-present-quotes.jpg)
+(https://cloud.githubusercontent.com/assets/12632927/13230987/b156ca2e-d975-11e5-9489-1aef71c00b38.png)
 
 #Meme :smile:
-![StarWars](http://www.starwars7saga.xyz/wp-content/uploads/2015/12/all-about-that-base.jpg)
+(https://cloud.githubusercontent.com/assets/12632927/13231336/698ab500-d977-11e5-94ba-f1b611df65f8.png)
 
 #Food
 My favorite meals are:
-* Nachos with queso, diced tomatoes, black beans(dry),
-  shredded lettus, shredded cheese and a dab of sour cream. :yum:
-
-* My grandma's famous fried chicken
-* Chicken fettuccine Alfredo
-
+* Steak :steak:
+* Sushi :sushi:
 
 #Movie
 ![LOTR](http://moviemag.ir/images/pics/62/News/1/1/22/stone234.jpg)
 
 #Game
-Just for the record, I love all of my games in their own unique way. However, if I
-had to choose "one game to rule them all", I would have to give the edge to 
-Knights of the Old Republic. Although it is an older game and the graphics arn't 
-as cool as all of these newer games coming out, the storyline more than makes up for
-it.
+The Division...It is coming out on the 8th...Hopefully I destory my PS4 before then. 
 
 ![KOTOR](http://vignette2.wikia.nocookie.net/starwars/images/1/15/KotOR_Cover.png/revision/latest?cb=20131201215938)
 
